@@ -4,3 +4,5 @@ Hello puppet comrades, Cody here. The cringe you are seeing right now are random
 Here's my linktree 'n shit: https://www.flowcode.com/page/fnacodys
 
 And here are my chromatics: https://drive.google.com/drive/folders/1SHN6OeUnMHYcUyKvRn9hm3xZK7YAwXWC?usp=sharing
+
+Yeah have fun lol
